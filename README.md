@@ -5,7 +5,7 @@
 
 
 ## 💫 About Me:
-📱I'm currently studying in NIT Calicut, Kerala.<br><br>📫 Reach me at alokpandey181@gmail.com<br><br>⚡ Fun fact I can solve a Rubik's Cube in under a minute!
+📱I'm a Associate Software Engineer. I've post graduated from NIT Calicut, Kerala.<br><br>📫 Reach me at alokpandey181@gmail.com<br><br>⚡ Fun fact I can solve a Rubik's Cube in under a minute!
 
 
 ## 🌐 Socials:
